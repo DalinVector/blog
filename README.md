@@ -1,2 +1,2 @@
 # blog
-about myself's gains
+about myself's gains or thinking
